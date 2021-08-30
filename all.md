@@ -41,6 +41,13 @@
 - [Sausage Pasta Salsiccia](https://vm.tiktok.com/ZMRLwoVaF/)
 - [Chicken oven bake](https://vm.tiktok.com/ZMRLKRWnD/)
 - [Afro hair comb to cut onions](https://vm.tiktok.com/ZMRLKRckW/)
+- [Vegetable oven crock pot bake](https://vm.tiktok.com/ZMRLKFMEV/)
+- [Flatbread recipe](https://vm.tiktok.com/ZMRLKKPAL/)
+- [Cheese inside chicken bake](https://vm.tiktok.com/ZMRLKc2m2/)
+- [Breakfast quesadillas](https://vm.tiktok.com/ZMRLK7AoU/)
+- [Roast Potato salad](https://vm.tiktok.com/ZMRLKTjyY/)
+- [Teriyaki sauce](https://vm.tiktok.com/ZMRLE55mr/)
+- [Lemon ice creaam using coconut milk](https://vm.tiktok.com/ZMRLEAJwu/)
 
 ## Health, exercise, stretching
 - [Wall stretching for posturee](https://vm.tiktok.com/ZMRLart5L/)
@@ -70,6 +77,13 @@
 - [Exercise for lower back pain](https://vm.tiktok.com/ZMRLTptsC/)
 - [Benefits of bare foot walking](https://vm.tiktok.com/ZMRLwYDkG/)
 - [IT band syndrome stretches](https://vm.tiktok.com/ZMRLK26qA/)
+- [Back crack stretch](https://vm.tiktok.com/ZMRLKxeYq/)
+- [Variation of hip rotation as an exercise](https://vm.tiktok.com/ZMRLE8ho5/)
+- [Sciatica relief](https://vm.tiktok.com/ZMRLENPUE/)
+- [Lower back stretch](https://vm.tiktok.com/ZMRLEU6Ad/)
+- [Ten daily stretches](https://vm.tiktok.com/ZMRLEMuYE/)
+- [7 Signs of an unhealthy gut](https://vm.tiktok.com/ZMRLEUDbM/)
+- [Turmeric and ginger anti-inflammatory](https://vm.tiktok.com/ZMRLKojA3/)
 
 ## Presentation + voice
 - [How to stop being shy and akwards(presentation skills)](https://vm.tiktok.com/ZMRL7P4Sb/)
@@ -79,6 +93,7 @@
 - [Speechwriter techniques of politicians](https://vm.tiktok.com/ZMRLwBrLM/)
 - [I'm fine thank you how are you?](https://vm.tiktok.com/ZMRLwHRR8/)
 - [Focusing on just listening in conversations](https://vm.tiktok.com/ZMRLKh1NP/)
+- [Hummming as a breathing exerecise](https://vm.tiktok.com/ZMRLKctWh/)
 
 ## Cleaning and housework
 - [Towel folding](https://vm.tiktok.com/ZMRLa6S6p/)
@@ -98,7 +113,6 @@
 - [Simple guitar chord progression](https://vm.tiktok.com/ZMRLwc8MJ/)
 
 ## Misc
-
 - [Inheritance tax](https://vm.tiktok.com/ZMRLvABrK/)
 - [Paper aeroplanes](https://vm.tiktok.com/ZMRLvNuWQ/)
 - [Shoe laces hack](https://vm.tiktok.com/ZMRLvSMve/)
@@ -111,6 +125,7 @@
 - [Make your own fake indoor window](https://vm.tiktok.com/ZMRLwLcCR/)
 - [How to not suck at Chess](https://vm.tiktok.com/ZMRLwQ8bS/)
 - [Towing rope knot](https://vm.tiktok.com/ZMRLKU6nU/)
+- [3x3 tik tak toe](https://vm.tiktok.com/ZMRLKGyHS/)
 
 ## Pyschology, philosophy, learning, mental health
 - [How to apologise](https://vm.tiktok.com/ZMRLvDLWk/)
@@ -123,12 +138,16 @@
 - [Stoicism on people being obxnious](https://vm.tiktok.com/ZMRLEFFUx/)
 - [Taking notes the right way](https://vm.tiktok.com/ZMRLwQHda/)
 - [Studies on purpose in life](https://vm.tiktok.com/ZMRLwmSwT/)
+- [Earl Nightingale on thoughts](https://vm.tiktok.com/ZMRLKM1qE/)
 
 ## Art, woodwork, DIY
 - [Loomis technique for drawing faces](https://vm.tiktok.com/ZMRLv2gtN/)
 - [Credit card paint brush](https://vm.tiktok.com/ZMRLvPPTy/)
 - [Hiding screws in a wooden join](https://vm.tiktok.com/ZMRLvDuaT/)
 - [Dovetail wood cut](https://vm.tiktok.com/ZMRLwvPRN/)
+- [How to draw a puppy](https://vm.tiktok.com/ZMRLEhM95/)
+- [Drawing profile using circle and cross](https://vm.tiktok.com/ZMRLE84dF/)
+- [Carpentry joining corners with a peg](https://vm.tiktok.com/ZMRLKV5sq/)
 
 ## Gardening & outdoors
 - [Hugel beds](https://vm.tiktok.com/ZMRLv8sd4/)
@@ -146,28 +165,3 @@
 - [Self watering system using string](https://vm.tiktok.com/ZMRLwLgaG/)
 - [Unlimmited mint](https://vm.tiktok.com/ZMRLT7YHV/)
 - [Repel pests with an edible plant](https://vm.tiktok.com/ZMRLwb62P/)
-
-
-
-- https://vm.tiktok.com/ZMRLKFMEV/
-- https://vm.tiktok.com/ZMRLKxeYq/
-- https://vm.tiktok.com/ZMRLKM1qE/
-- https://vm.tiktok.com/ZMRLK7AoU/
-- https://vm.tiktok.com/ZMRLKTjyY/
-- https://vm.tiktok.com/ZMRLKKPAL/
-- https://vm.tiktok.com/ZMRLKojA3/
-- https://vm.tiktok.com/ZMRLKc2m2/
-- https://vm.tiktok.com/ZMRLKGyHS/
-
-
-- https://vm.tiktok.com/ZMRLKV5sq/
-- https://vm.tiktok.com/ZMRLKctWh/
-- https://vm.tiktok.com/ZMRLE8ho5/
-- https://vm.tiktok.com/ZMRLENPUE/
-- https://vm.tiktok.com/ZMRLEhM95/
-- https://vm.tiktok.com/ZMRLEAJwu/
-- https://vm.tiktok.com/ZMRLEU6Ad/
-- https://vm.tiktok.com/ZMRLE84dF/
-- https://vm.tiktok.com/ZMRLE55mr/
-- https://vm.tiktok.com/ZMRLEMuYE/
-- https://vm.tiktok.com/ZMRLEUDbM/
