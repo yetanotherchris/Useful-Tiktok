@@ -1,8 +1,5 @@
-## Holidays and eating out
-- [Fish hotel, Cotswolds](https://vm.tiktok.com/ZMRLaRdNT/)
-- [Switzerland alps](https://vm.tiktok.com/ZMRL7gffW/)
-- [Carbonara restaurant London](https://vm.tiktok.com/ZMRL7wpVD/)
-- [Switzerland river](https://vm.tiktok.com/ZMRLcwoRP/)
+# Useful-Tiktok
+The boring side of Tiktok - a collection of links to videos of recipes, health, hacks and so on
 
 ## Cooking & recipes
 - [Gordan Ramsey Poached eggs](https://vm.tiktok.com/ZMRLaSA8r/)
@@ -165,3 +162,10 @@
 - [Self watering system using string](https://vm.tiktok.com/ZMRLwLgaG/)
 - [Unlimmited mint](https://vm.tiktok.com/ZMRLT7YHV/)
 - [Repel pests with an edible plant](https://vm.tiktok.com/ZMRLwb62P/)
+
+
+## Holidays and eating out
+- [Fish hotel, Cotswolds](https://vm.tiktok.com/ZMRLaRdNT/)
+- [Switzerland alps](https://vm.tiktok.com/ZMRL7gffW/)
+- [Carbonara restaurant London](https://vm.tiktok.com/ZMRL7wpVD/)
+- [Switzerland river](https://vm.tiktok.com/ZMRLcwoRP/)
